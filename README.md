@@ -1,9 +1,9 @@
 - 👋 Hi, I’m HARSH KUMAR
 - 👀 Currently pursuing B.Tech.(CSAI) in ABESIT Ghaziabad.
 - 🌱 I’m currently learning new technologies and new tech things.
-- 📫 You can reach me out on instagram:@prj.harshit
+- 📫 You can reach me out on instagram: @prj.harshit
 -  LinkedIn: www.linkedin.com/in/harsh-kumar-148a35352
--  Github:harshKprj30
+-  Github: @harshKprj30
 - 😄 Pronouns: HE/HIM
   
 
