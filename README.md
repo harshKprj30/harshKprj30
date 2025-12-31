@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning new technologies and new tech things.
 - 📫 You can reach me out on instagram: [@prj.harshit](https://www.instagram.com/prj.harshit/)
 -  LinkedIn: www.linkedin.com/in/harsh-kumar-148a35352
--  Github: @harshKprj30
+-  Github: [@harshKprj30](https://github.com/harshKprj30)
 - 😄 Pronouns: HE/HIM
   
 
