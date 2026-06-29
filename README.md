@@ -4,6 +4,7 @@
 - 📫 You can reach me out on instagram: [@prj.harshit](https://www.instagram.com/prj.harshit/)
 -  LinkedIn: www.linkedin.com/in/harsh-kumar2306
 -  Github: [@harshKprj30](https://github.com/harshKprj30)
+-  Linktree: https://linktr.ee/HarshKumar1
 - 😄 Pronouns: HE/HIM
   
 
